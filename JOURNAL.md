@@ -1,4 +1,4 @@
-##The schematic
+## The schematic
 One hour passed and i finally finishe the schematic so her is some photo's:
 <img width="887" height="676" alt="image" src="https://github.com/user-attachments/assets/6b1e0830-1d65-4e2d-b24b-791bb99ffccc" />
 <img width="742" height="372" alt="image" src="https://github.com/user-attachments/assets/33899315-6f19-4064-a000-8d1d5145b72e" />
